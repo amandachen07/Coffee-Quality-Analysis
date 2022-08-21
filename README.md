@@ -1,1 +1,1 @@
-# Projects
+# Public projects by Amanda Chen
